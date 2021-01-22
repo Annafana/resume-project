@@ -1,1 +1,1 @@
-# resume-project
+Curriulum Anna Chervak
